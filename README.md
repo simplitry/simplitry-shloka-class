@@ -1,0 +1,1 @@
+# simplitry-shloka-class
